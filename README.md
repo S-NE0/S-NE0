@@ -2,9 +2,7 @@
   
 ![](https://komarev.com/ghpvc/?username=S-NE0&color=a1aad2&label=bruh&base=5000)
 
-<img width="500" height="475" alt="1000020496" src="https://github.com/user-attachments/assets/5098cc50-c352-4a8d-a67d-46921e3ce438" />
+<img align="right" src="https://github.com/user-attachments/assets/cbf35be4-8113-4c3d-bf1f-3ac90c820b80" alt="Right Aligned" width="400"> test
 
-
-Ok...Im sleep.y I work on this later. :^)
 
 </div>
