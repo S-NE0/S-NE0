@@ -6,7 +6,7 @@
 
 <img width="400" height="375" alt="1000020496" src="https://github.com/user-attachments/assets/8f3f1611-cefa-4214-ab2b-8dcb61555ec7" />
 
-$\Huge\color{#d4c5f1}{\text{RANDY / jean}}$ 
+$\Huge\color{#d4c5f1}{\text{RANDY / Spam}}$ 
 
 <details>
   <summary>$\color{#D99dbe}{\text{BFYI}}$</summary>
@@ -20,6 +20,8 @@ $\Huge\color{#d4c5f1}{\text{RANDY / jean}}$
   • Light inspo is ok! (and appreciated) :^)
 
   • I block freely. Anything that grosses me out will be hidden.
+
+  • I am very awkward and struggle with keeping conversations with anyone other than close friends. If i randomly go quiet, this is why.
   
 </details>
 
