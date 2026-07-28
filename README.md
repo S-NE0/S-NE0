@@ -30,7 +30,7 @@ $\Huge\color{#d4c5f1}{\text{RANDY / Spam}}$    <img width="30" height="30" alt="
 
   • -15, or 22+
 
-  • Anti-Recovery, unless the person you're hating on is not trying to recover in any way or is irredeemable.
+  • Anti-Recovery, please don't harass mentally ill people trying to get better. It's doesn't make you cool or morally superior, it makes you an asshole.
 
   • Fans of any transfur content, especially Changed. It makes me deeply uncomfortable.
 
