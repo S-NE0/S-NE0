@@ -4,9 +4,9 @@
 
 ---
 
-<img width="400" height="375" alt="1000020496" src="https://github.com/user-attachments/assets/8f3f1611-cefa-4214-ab2b-8dcb61555ec7" />
 
-$\Huge\color{#d4c5f1}{\text{RANDY / Spam}}$ 
+
+$\Huge\color{#d4c5f1}{\text{RANDY / Spam}}$    <img width="30" height="30" alt="1000020529" src="https://github.com/user-attachments/assets/35570f3d-8690-4ec2-8769-78fb26b67dd4" />
 
 <details>
   <summary>$\color{#D99dbe}{\text{BFYI}}$</summary>
@@ -15,19 +15,37 @@ $\Huge\color{#d4c5f1}{\text{RANDY / Spam}}$
 
   • W2I is encouraged if im alone, I'm usually AFK.
 
-  • -15, Pro/Darkship and anything of the sort DNI
-
   • Light inspo is ok! (and appreciated) :^)
-
-  • I block freely. Anything that grosses me out will be hidden.
 
   • I am very awkward and struggle with keeping conversations with anyone other than close friends. If i randomly go quiet, this is why.
   
 </details>
 
----
+<details>
+  <summary>$\color{#D99dbe}{\text{DNI}}$</summary>
+  
+  • Pro/Darkship, and anyone who consumes paraphilic media or has acted on their paraphilias.
+
+  • People who are prejudiced in any way. (Homophobic, racist, albeist, etc..) 
+
+  • -15, or 22+
+
+  • Anti-Recovery, unless the person you're hating on is not trying to recover in any way or is irredeemable.
+
+  • Fans of any transfur content, especially Changed. It makes me deeply uncomfortable.
+
+  • Past friends of mine/my friends that we dont have good history with.
+  
+</details>
+
+<img width="192" height="185" alt="1000019807" src="https://github.com/user-attachments/assets/e7f33c31-29c1-4f97-805f-8e2b5acd3625" />
+
+
 
 if youre a friend, feel free to ask for my discord!
 
 </div>
-im eo fucking mad i dont even like cutesy sneo theres just Nothing else to use No other fanart Im so fuckogn mad if you guys find good sneo artists please recommend them in my straw or ata pleaseim begging i need a new layout
+
+---
+
+ill make this prettier soon enough, just feeling lazy rn :^)
