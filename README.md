@@ -24,7 +24,7 @@ $\Huge\color{#d4c5f1}{\text{RANDY / Spam}}$    <img width="30" height="30" alt="
 <details>
   <summary>$\color{#D99dbe}{\text{DNI}}$</summary>
   
-  • Pro/Darkship, and anyone who consumes paraphilic media or has acted on their paraphilias.
+  • Pro/Darkship, and anyone who has acted on their paraphilias.
 
   • People who are prejudiced in any way. (Homophobic, racist, albeist, etc..) 
 
