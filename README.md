@@ -6,7 +6,7 @@
 
 
 
-$\Huge\color{#d4c5f1}{\text{RANDY / Spam}}$    <img width="30" height="30" alt="1000020529" src="https://github.com/user-attachments/assets/35570f3d-8690-4ec2-8769-78fb26b67dd4" />
+$\Huge\color{#d4c5f1}{\text{RANDY / Spam}}$    <img width="30" src="https://github.com/user-attachments/assets/35570f3d-8690-4ec2-8769-78fb26b67dd4" />
 
 <details>
   <summary>$\color{#D99dbe}{\text{BFYI}}$</summary>
@@ -38,7 +38,7 @@ $\Huge\color{#d4c5f1}{\text{RANDY / Spam}}$    <img width="30" height="30" alt="
   
 </details>
 
-<img width="192" height="185" alt="1000019807" src="https://github.com/user-attachments/assets/e7f33c31-29c1-4f97-805f-8e2b5acd3625" />
+<img width="192" src="https://github.com/user-attachments/assets/e7f33c31-29c1-4f97-805f-8e2b5acd3625" />
 
 
 
